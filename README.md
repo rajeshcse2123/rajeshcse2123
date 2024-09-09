@@ -13,4 +13,4 @@ passionate about web development and machine learning.
 
 🌟 Collaboration: Looking to collaborate on innovative projects and contribute to open-source.
 
-Thanks for visiting! 🛐🙏
+Thanks for visiting! 

@@ -12,4 +12,5 @@ passionate about web development and machine learning.
 📫 Reach Me At: rajeshkumar828125@gmail.com
 
 🌟 Collaboration: Looking to collaborate on innovative projects and contribute to open-source.
-Thanks for visiting!
+
+Thanks for visiting! 🛐🙏
